@@ -1,0 +1,1 @@
+#The ring is a gift and a burden
